@@ -1,4 +1,4 @@
-
+stealth Scripts for deadlock cheat - auto-hero swap and auto-hero blink prediction is the best deadlock cheat scripts, featuring auto-hero swap and auto-hero blink prediction.
 
 
 
